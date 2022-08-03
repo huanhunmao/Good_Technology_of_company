@@ -1,0 +1,1 @@
+# Good_Technology_of_company
